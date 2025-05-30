@@ -1,1 +1,0 @@
-Mantla Social media link
